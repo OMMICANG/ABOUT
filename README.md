@@ -1,25 +1,27 @@
 # ABOUT
 WHOAMI?
+
+
 **●I LOVE TO DO HARD THINGS ||**
 
 **●FullStack Web Developer ||**  
 
-●HTML || CSS || Wordpress Expert || 
+**●HTML || CSS || Wordpress Expert ||**
 
-●Node Js Framework ||
+**●Node Js Framework ||**
  
-●Voice Over Artist || 
+**●Voice Over Artist ||**
 
-●Content Creator || 
+**●Content Creator ||**
 
-●YouTube Tech && Life Vlogger || 
+**●YouTube Tech && Life Vlogger ||**
 
-●Crypto Trader || 
+**●Crypto Trader ||**
 
-●FX Trader(Scalper & Day Trader) ||
+**●FX Trader(Scalper & Day Trader) ||**
 
-● IB @TPGlobal FX Limited ||
+**● IB @TPGlobal FX Limited ||**
 
-● Renaissance Humanist || Digital Nomad || 
+**● Renaissance Humanist || Digital Nomad ||** 
 
-■OMMICANG
+**■OMMICANG**
